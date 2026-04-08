@@ -4,5 +4,5 @@
 
 &nbsp;<div align="center">
 &nbsp;<div align="center">
- [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=outㅤofㅤthisㅤworld!%20&color=5CA374&logoColor=5CA374&style=plastic)](https://github.com/againstallgravity)
+ [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=ㅤoutㅤofㅤthisㅤworld!%20&color=5CA374&logoColor=5CA374&style=plastic)](https://github.com/againstallgravity)
 </div>
