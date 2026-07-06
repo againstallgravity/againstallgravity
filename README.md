@@ -16,7 +16,7 @@ ${\textsf{\color{#A0796E} lowkey revamping ts}}$
 </div>
  &nbsp;<div align="center">
 
-[rentry](https://rentry.co/bully55)ㅤㅤㅤㅤㅤㅤㅤ                  [sign my ata](https://smopkins.atabook.org/)ㅤㅤ
+[rentry](https://rentry.co/bully55)ㅤㅤㅤㅤㅤㅤㅤ                  [sign my ata](https://adamfckingstinks.atabook.org/)ㅤㅤ
 &nbsp;<div align="center">
 
 
