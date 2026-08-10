@@ -4,15 +4,13 @@
 </div>
 
 </div>
-&nbsp;<div align="center"> <img width="677" height="368" alt="14423-removebg-preview" src="https://github.com/user-attachments/assets/1ad12f29-60af-4e00-8c82-0e41569d58cb" />
- 
+<img width="512" height="488" alt="20745-removebg-preview" src="https://github.com/user-attachments/assets/8ae2580e-272c-47f3-b158-b7a2eeb99609" />
 
- 
+</div> 
 ${\textsf{\color{#A0796E} lowkey revamping ts}}$  
 &nbsp;<div align="center">
 
 
-</div>
 </div>
  &nbsp;<div align="center">
 
