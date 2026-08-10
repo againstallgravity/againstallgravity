@@ -7,11 +7,18 @@
 <img width="512" height="488" alt="20745-removebg-preview" src="https://github.com/user-attachments/assets/8ae2580e-272c-47f3-b158-b7a2eeb99609" />
 
 </div> 
-${\textsf{\color{#A0796E} lowkey revamping ts}}$  
+ &nbsp;<div align="center">
+  
+${\textsf{\color{#A0796E} Insanely Nerdy about Ryan Gosling}}$  
 &nbsp;<div align="center">
 
-
 </div>
+&nbsp;<div align="center">
+  
+${\textsf{\color{#A0796E} Adam or Ken !! 17 and gay as fuck}}$  
+&nbsp;<div align="center">
+</div>
+
  &nbsp;<div align="center">
 
 [rentry](https://rentry.co/bully55)ㅤㅤㅤㅤㅤㅤㅤ                  [sign my ata](https://adamfckingstinks.atabook.org/)ㅤㅤ
