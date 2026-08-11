@@ -16,7 +16,7 @@ ${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$
 </div>
 &nbsp;<div align="center">
   
-${\textsf{\color{#D9BEFF} Adam or Ken !! 17 and gay as fuck}}$  
+${\textsf{\color{#D9BEFF} c+h highly enc}}$  
 &nbsp;<div align="center">
 </div>
 
