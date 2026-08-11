@@ -1,3 +1,5 @@
+<img width="2150" height="842" alt="Untitled9_20260811010343" src="https://github.com/user-attachments/assets/6bc1d72a-8729-4f32-9380-79ec08c90d5c" />
+
 <div align="center"> 
  
  [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=++ㅤNice+++++Guys++++ㅤ%20&color=FF92F4&logoColor=5CA374&style=for-the-badge)](https://github.com/againstallgravity)
