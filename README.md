@@ -15,13 +15,12 @@ ${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$
 &nbsp;<div align="center">
 </div>
 &nbsp;<div align="center">
-  
-${\textsf{\color{#D9BEFF} c+h highly enc}}$  
+
+${\textsf{\color{#D9BEFF} c+h highly encouraged pls sit with mee!!}}$  
 &nbsp;<div align="center">
 </div>
 
  &nbsp;<div align="center">
-
 ㅤㅤ  ㅤ[𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/bully55)ㅤㅤㅤㅤㅤ<img width="20" height="20" alt="Tumblr_l_21624958517596" src="https://github.com/user-attachments/assets/f4a166b2-eb54-4209-9503-2434e89dc8e2" />ㅤㅤㅤ
      ㅤ [𝙨𝙞𝙜𝙣 𝙢𝙮 𝙖𝙩𝙖](https://adamfckingstinks.atabook.org/)ㅤㅤ
 &nbsp;<div align="center">
