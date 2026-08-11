@@ -1,6 +1,6 @@
 <div align="center"> 
  
- [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=++ㅤNice+++++Guys++++ㅤ%20&color=5CA374&logoColor=5CA374&style=for-the-badge)](https://github.com/againstallgravity)
+ [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=++ㅤNice+++++Guys++++ㅤ%20&color=FF92F4&logoColor=5CA374&style=for-the-badge)](https://github.com/againstallgravity)
 </div>
 
 </div>
@@ -10,13 +10,13 @@
 </div> 
  &nbsp;<div align="center">
   
-${\textsf{\color{#A0796E} Insanely Nerdy about Ryan Gosling}}$  
+${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$  
 &nbsp;<div align="center">
 
 </div>
 &nbsp;<div align="center">
   
-${\textsf{\color{#A0796E} Adam or Ken !! 17 and gay as fuck}}$  
+${\textsf{\color{#D9BEFF} Adam or Ken !! 17 and gay as fuck}}$  
 &nbsp;<div align="center">
 </div>
 
