@@ -22,7 +22,7 @@ ${\textsf{\color{#D9BEFF} Adam or Ken !! 17 and gay as fuck}}$
 
  &nbsp;<div align="center">
 
-[rentry](https://rentry.co/bully55)ㅤㅤㅤㅤㅤㅤㅤ                  [sign my ata](https://adamfckingstinks.atabook.org/)ㅤㅤ
+[𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/bully55)ㅤㅤㅤㅤㅤㅤㅤ                [𝙨𝙞𝙜𝙣 𝙢𝙮 𝙖𝙩𝙖](https://adamfckingstinks.atabook.org/)ㅤㅤ
 &nbsp;<div align="center">
 
 <img width="2150" height="842" alt="Untitled9_20260811010047" src="https://github.com/user-attachments/assets/5b20552a-3f78-4eb4-b2a2-88fb1447811e" />
