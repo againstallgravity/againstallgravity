@@ -7,18 +7,12 @@
 </div>
 
 </div>
-<img width="512" height="488" alt="Untitled8_20260811020614" src="https://github.com/user-attachments/assets/8a4d1260-e104-4681-91d6-a62dc1d30fe5" />
-
+<img width="512" height="488" alt="Untitled8_20260811165115" src="https://github.com/user-attachments/assets/afca949a-8f3f-4cd2-810a-1e44abd4107c" />
 
 </div> 
  &nbsp;<div align="center">
   
 ${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$  
-&nbsp;<div align="center">
-</div>
-&nbsp;<div align="center">
-
-${\textsf{\color{#D9BEFF} c+h highly encouraged pls sit with mee!!}}$  
 &nbsp;<div align="center">
 </div>
 
