@@ -10,7 +10,7 @@
 </div> 
  &nbsp;<div align="center">
   
-${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$  
+## ${\textsf{\color{#D9BEFF} Insanely Nerdy about Ryan Gosling}}$  
 &nbsp;<div align="center">
 </div>
  &nbsp;<div align="center">
